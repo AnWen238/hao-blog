@@ -2,6 +2,10 @@
 I am very happy to meet friends from all over the world on GitHub, I am from China, I am very fond of technical research and analysis, have certain research on the Internet, Internet of Things technology, and are also very proficient in search engine technology. I focus on search engine technology, and I also like wireless technology, this column shares wireless technology knowledge and related wireless WiFi technology file source code.
 You can add my WhatsApp（https://api.whatsapp.com/message/5ZHJAFKWSEWZO1?autoload=1&app_absent=0）, or add my YouTube（https://www.youtube.com/@iotcloudplatform_com） subscription, welcome your inquiry.
 
+Website:
+https://wi-fi8.cn/
+https://motorforum.rfidepc.com/
+
 
 YouTube：
 
